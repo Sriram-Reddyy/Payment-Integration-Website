@@ -1,1 +1,0 @@
-![Alt text](<RAZORPAY (1).jpg>)
